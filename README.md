@@ -1,3 +1,3 @@
-Ana Paula Rosales Olguin
+Juan Perez Galindo
 
-Computing Engineering Student :)
+Electric Engineering Student
