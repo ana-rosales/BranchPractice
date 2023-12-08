@@ -1,2 +1,3 @@
-# BranchPractice
-Just a practice repository to learn how to manage branches.
+Ana Paula Rosales Olguin
+
+Computing Engineering Student :)
