@@ -1,3 +1,5 @@
 Juan Perez Galindo
 
-Electric Engineering Student
+Ana Paula Rosales Olguin
+
+Both Globant students :)
